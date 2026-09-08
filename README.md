@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Malik Yasir<br>Studying BSIT from UNIVERSITY OF EDUCATION LAHORE<br>I"m interested in web developing <br> Iam looking to collaborate on codes<br><br><br><br>
+Hi, I'm Malik Yasir<br>Studying BSIT from UNIVERSITY OF EDUCATION LAHORE<br>I"m interested in web developing <br> I am looking to collaborate on codes<br><br><br><br>
 
 
 ## 🌐 Socials:
